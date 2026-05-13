@@ -1,4 +1,4 @@
-#  
+#  Experience steal a brainrot like never before with steal a brainrot Scripts ultimate, the #1 Script. Includes aimbot and speed for unbeatable
 
 
 
